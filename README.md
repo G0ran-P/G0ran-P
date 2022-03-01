@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @G0ran-P
+- 👋 Hi, I’m G0ran-P
